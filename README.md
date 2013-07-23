@@ -1,4 +1,4 @@
 GPI
 ===
 
-dagoberto Gestion de Proyectos de Investigacion
+no we anda mal eso!!! checa bien fvfvfd
